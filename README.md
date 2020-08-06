@@ -1,6 +1,4 @@
-# wattpad.vn
-✅ TOP 100 Truyện hay tổng hợp từ Wattpad.vn
-[Chọc Tức Vợ Yêu - Mua Một Tặng Một](https://wattpad.vn/choc-tuc-vo-yeu-mua-mot-tang-mot-052420/)
+# wattpad.vn<br />✅ TOP 100 Truyện hay tổng hợp từ Wattpad.vn<br />[Chọc Tức Vợ Yêu - Mua Một Tặng Một](https://wattpad.vn/choc-tuc-vo-yeu-mua-mot-tang-mot-052420/)<br />
 [Gió Ấm Không Bằng Anh Thâm Tình](https://wattpad.vn/gio-am-khong-bang-anh-tham-tinh-200620/)
 [Boss Hung Dữ - Ông Xã Kết Hôn Đi](https://wattpad.vn/boss-hung-du-ong-xa-ket-hon-di-150620/)
 [Yêu Sâu Nặng: Đế Thiếu Âm Thầm Cưng Chiều Vợ](https://wattpad.vn/yeu-sau-nang-de-thieu-am-tham-cung-chieu-vo/)
