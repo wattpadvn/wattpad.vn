@@ -1,4 +1,4 @@
-#✅ TOP 100 Truyện hay tổng hợp từ [Wattpad.VN](https://wattpad.vn/)
+#✅ TOP 100 Truyện hay tổng hợp từ wattpad.vn
 
 [Chọc Tức Vợ Yêu - Mua Một Tặng Một](https://wattpad.vn/choc-tuc-vo-yeu-mua-mot-tang-mot-052420/)
 
